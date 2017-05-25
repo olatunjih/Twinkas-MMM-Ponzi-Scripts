@@ -1,5 +1,5 @@
 # Twinkas-MMM-Ponzi-Scripts
-🇸 🇲 🇦 🇷 🇹 🇵 🇦 🇨 🇰 🇪 🇹:
+
 d. The Same Can Be Re-Opened By Proper Reasoning & Documentations Are Provided To The Admin For Approval.
 
 Once PH is done, just upload receipt and wait for the member to confirm that he has received your payment, when you see that the member has confirmed, you are now able to Get Help.
